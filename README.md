@@ -2,6 +2,5 @@
 
 <br> call me marple
 <br> c + h welcome anytime
-<br> nothing more to say here, just trying my best
 
-<img src="https://files.catbox.moe/zta35t.png" width="600" height="600">
+<img src="https://files.catbox.moe/1ibpqt.png" width="600" height="600">
